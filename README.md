@@ -18,7 +18,7 @@
 
 - 📺 I also enjoy watching anime and reading manga and Webtoons. The stories, art, and characters captivate me, and I'm always eager to discuss my favorite series and discover new ones.
 
-- 🍳 In my free time, I love to unleash my creativity in the kitchen. Cooking and baking have become a delightful hobby, allowing me to connect my the cuban 🇨🇺 roots, experiment with a veriety of flavors from all over the world, and share all of the delicious food with friends and family.
+- 🍳 In my free time, I love to unleash my creativity in the kitchen. Cooking and baking have become a delightful hobby, allowing me to connect my cuban 🇨🇺 roots, experiment with a veriety of flavors from all over the world, and share all of the delicious food with friends and family.
 
 - 🤞 Over the summer I will be working on some research in my university's Operations Research department and embarking on some side projects. If everything goes well 🤞, my side projects will be posted here by the end of the summer. 
 
