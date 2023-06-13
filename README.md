@@ -14,7 +14,7 @@
 
 - Playing volleyball not only increases physical activity but also improves mental health. The combination of teamwork, strategic thinking, and physical exertion is invigorating and helps me stay balanced and focused.
 
-✏️ 🖌️ In addition to sports and technology, I also have a passion for drawing and painting. Exploring different mediums for creativity is something I thoroughly enjoy. From pencil sketches to digital art, I love experimenting with various techniques and bringing my imagination to life on paper or screen.
+- ✏️ In addition to sports and technology, I also have a passion for drawing and painting. Exploring different mediums for creativity is something I thoroughly enjoy. From pencil sketches to digital art, I love experimenting with various techniques and bringing my imagination to life on paper or screen.
 
 - 📺 I also enjoy watching anime and reading manga and Webtoons. The stories, art, and characters captivate me, and I'm always eager to discuss my favorite series and discover new ones.
 
